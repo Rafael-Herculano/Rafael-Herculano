@@ -12,7 +12,7 @@
 
 - 📫 Você me encontra no email **rafael.herculanosousa@gmail.com**
 
-- 📄 Minhas experiências estão descritas no meu perfil do Linkedin [https://www.linkedin.com/in/rafael-herculano/]
+- 📄 Minhas experiências estão descritas no meu perfil do [Linkedin](https://www.linkedin.com/in/rafael-herculano/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
